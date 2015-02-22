@@ -1,2 +1,0 @@
-# pics
-Amy Winehouse
